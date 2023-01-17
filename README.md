@@ -12,7 +12,7 @@ Characters: Minions, Yoda, and Dr. Kington.
 
 DO BETTER EMAILS:
 
-This is the Great Lawn and it leaves us at a loss for words … please, let us all do better, be better than this picture!
+   This is the Great Lawn and it leaves us at a loss for words … please, let us all do better, be better than this picture!
 
 1. Subj: We can and must do better
 
