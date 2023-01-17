@@ -7,6 +7,8 @@ https://omrelli.ug/nearley-playground/
 
 https://web.stanford.edu/class/archive/cs/cs103/cs103.1156/tools/cfg/
 
+https://docs.google.com/document/d/19FJxo7K1eNLw_wYyiER503G6Xg_70q0ZFXKqV8AadEc/edit?usp=sharing
+
 Characters: Minions, Yoda, and Dr. Kington.
 
 
