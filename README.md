@@ -13,6 +13,7 @@ Characters: Minions, Yoda, and Dr. Kington.
 DO BETTER EMAILS:
 
 1. Subj: We can and must do better
+
    Body: Dear Students, (copy adult members of the community)
 
     I hope you enjoyed your first day of classes. It was awesome to be back in the classroom with you—this was a highlight of the day.
