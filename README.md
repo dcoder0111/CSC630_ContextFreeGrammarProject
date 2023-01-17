@@ -8,3 +8,27 @@ https://omrelli.ug/nearley-playground/
 https://web.stanford.edu/class/archive/cs/cs103/cs103.1156/tools/cfg/
 
 Characters: Minions, Yoda, and Dr. Kington.
+
+
+DO BETTER EMAILS:
+
+1. Subj: We can and must do better
+   Body: Dear Students, (copy adult members of the community)
+
+    I hope you enjoyed your first day of classes. It was awesome to be back in the classroom with you—this was a highlight of the day.
+    Unfortunately, I write this afternoon with a lowlight of the day and a brief and important reminder about responsibility and accountability.
+    As you can see in the attached images, the Greener tent and quad were left this afternoon in a wholly unacceptable state after lunch. The reusable         green bags (that were ordered and distributed to address the need that many of you expressed for assistance with carrying multiple Paresky containers)     were left strewn about the tent. Half empty food containers, water bottles, plastic wrappings, used utensils, and uneaten fruit were left on tables to     be picked up by the wind and carried across the quad. One receptable container was left overflowing as folks opted to leave containers on an erupting       pile instead of walking across the tent to the half-filled receptables.
+
+    We must take greater responsibility for ourselves and this campus.
+
+    Moving forward: clean up after yourselves. If you take/use a reusable bag, keep it with you, and use it again. Do not place items in overflowing bins       and trash cans. Be conscientious, resourceful, and responsible. Hold each other accountable.
+
+    With this note, I send gratitude to the individual students and colleagues who came across this scene and, without prompting, dropped what they were       doing and cleaned up the mess. Thank you for being such rock stars.
+
+    Students, you will have multiple opportunities in the hours ahead to redeem yourselves. After this deliberate practice, make it a habit.
+
+    Let’s go. Step up.
+
+    With confidence in you,
+
+    JKE
