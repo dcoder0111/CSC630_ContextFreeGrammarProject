@@ -33,3 +33,13 @@ DO BETTER EMAILS:
     With confidence in you,
 
     JKE
+    
+1. Subj: Vandalism in Commons
+
+   Body: Hi Andover,
+
+      We hope you’ve had a great start to winter term and are looking forward to break. Unfortunately, we’re emailing you with upsetting news. The men’s         bathroom in commons has been vandalized the past two nights, with barbeque sauce thrown all over the walls. We are shocked by the complete and utter       lack of regard for the commons staff. What may seem like a small prank has a real effect on people. Commons workers had to stay late cleaning up our       messes for the past two nights. That is unacceptable. We hope to see an end to this behavior and look forward to trust being repaired in our               community. 
+
+      With hope and optimism,
+
+      Student Body and Cluster Co-presidents 
