@@ -14,9 +14,11 @@ Characters: Minions, Blue Book (Yoda Style), "We Can and Must Do Better" Emails
 ### **Examples:**
 
 Minion Meme:
+<br>
 <img src="images/examples/minion_example.png">
 
 Blue Book (Yoda Style):
+<br>
 <img src="/images/examples/yoda_kington_example.png">
 
 DO BETTER EMAILS:
